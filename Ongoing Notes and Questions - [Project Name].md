@@ -9,7 +9,7 @@ I've tried to change the ambiance with few changes.
 ******************
 
 2017.03.23
-I'm uploading a new set of images with the corrections. The only change I made is to use a backlight as signage on the to shelf.
+I'm uploading a new set of images with the corrections. The only change I made is to use a backlight as signage on the top shelf.
 
 
 
