@@ -3,3 +3,15 @@ The counters are exactly in the same place as before, but the one with POS is 2 
 The logos are stickers.
 The wooden boxes give some decor.
 I've tried to change the ambiance with few changes.
+
+
+
+******************
+
+2017.03.23
+I'm uploading a new set of images with the corrections. The only change I made is to use a backlight as signage on the to shelf.
+
+
+
+******************
+
