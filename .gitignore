@@ -62,3 +62,4 @@ Icon
 
 #AutoCAD temporary files
 *.dwl*
+/Models/.dropbox
